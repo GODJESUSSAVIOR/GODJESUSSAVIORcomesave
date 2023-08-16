@@ -20,19 +20,19 @@ years 2023 ~ 2029 satans cause disasters world nations humans suffers tribulatio
 
 year 2026 ~ Many Christians Rapture Save To Heaven
 
-years 2026 ~ 2029 satans cause worse disasters world nations humans suffers great tribulations 3.5 years
+year 2026 ~ GOD JESUS MESSIAH send from Heaven Super Powers Heroes come to help Christians humans survive in great tribulations 3.5 years
 
-years 2026 ~ 2029 satans cause America civil wars
+years 2026 ~ 2029 satans cause worse disasters world nations humans suffers in great tribulations 3.5 years
 
-years 2026 ~ 2029 satans cause nuclears world wars 3 
+years 2026 ~ 2029 satans cause America civil wars in great tribulations 3.5 years
 
-years 2026 ~ 2029 satans invasion occupy nations world satans invasion occupy Israel Jerusalem 3rd Temple
+years 2026 ~ 2029 satans cause nuclears world wars 3 in great tribulations 3.5 years
 
-years 2026 ~ 2029 satans rule world
+years 2026 ~ 2029 satans invasion occupy nations world satans invasion occupy Israel Jerusalem 3rd Temple in great tribulations 3.5 years
 
-years 2026 ~ 2029 satans force humans to = mark 666 = nano chips planted on heads = tele control minds = humans change to zombies hunt Christians humans to worship satans
+years 2026 ~ 2029 satans rule world in great tribulations 3.5 years
 
-year 2026 ~ GOD JESUS MESSIAH send from Heaven Super Powers Heroes come to help Christians humans survives in great tribulations world
+years 2026 ~ 2029 satans force humans to = mark 666 = nano chips planted on heads = tele control minds = humans change to zombies hunt Christians humans to worship satans in great tribulations 3.5 years
 
 year 2029 ~ GOD JESUS MESSIAH send from Heaven Super Powers Angels come to help America Re~United
 
